@@ -1,12 +1,12 @@
-He wakes up in the morning
-Does his teeth, bite to eat, and he's rollin
-Never changes a thing
-The week ends, the week begins
+He wakes up in the morning  
+Does his teeth, bite to eat, and he's rollin  
+Never changes a thing  
+The week ends, the week begins  
 
-She thinks, we look at each other
-Wonderin what the other is thinking
-But we never say a thing
-As these crimes between us grow deeper
+She thinks, we look at each other  
+Wonderin what the other is thinking  
+But we never say a thing  
+As these crimes between us grow deeper  
 
 Take these chances  
 Place them in a box until a quieter time  
